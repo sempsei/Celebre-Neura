@@ -29,3 +29,5 @@ Caso estiver no Windows, não precisa ser python3, basta python.
 ## **Conclusão**
 
 Ferramenta simples de usar e muito boa a princípio. Agradeço a todos pela leitura!
+
+Fonte: https://github.com/sherlock-project/sherlock
