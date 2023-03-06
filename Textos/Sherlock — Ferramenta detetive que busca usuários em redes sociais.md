@@ -2,7 +2,7 @@ Como podemos buscar usuários e achar contas associadas de forma rápida e efici
 
 ![](https://miro.medium.com/max/194/1*JFnlePKgTqFnmDEdlm8VcA.png)
 
-Sua utilização é via terminal, e funciona tanto no Linux quanto no Windows (cmd, poweshell, windows terminal).
+Sua utilização é via terminal, e funciona tanto no Linux quanto no Windows (cmd, pwsh, windows terminal).
 
 Sem mais delongas vamos instalar!
 
