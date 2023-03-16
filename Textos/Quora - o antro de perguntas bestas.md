@@ -1,0 +1,23 @@
+Quora — rede social de perguntas e respostas. Quando adentrei a esta rede social, fui jogado a um monte de perguntas sobre QI e inteligência — oque mais pude perceber nas perguntas e respostas foi uma clara percepção de baixa inteligência.
+
+Toda essa questão de QI e inerência, são perguntas que, na verdade, você não se faz porque não se tem uma resposta concreta. Não sabemos realmente oque é inteligência — para alguns é a capacidade de resolver problemas de forma rápida e eficiente, para outros uma infinidade de outras coisas. Me deparei com perguntas como: “Oque seria uma pessoa com **1** de QI?”; “Qual a diferença entre uma pessoa com **X** de QI para outra com **Y** de QI?” e a “inédita” “Oque uma pessoa com **X** de QI é capaz de fazer?” — todas perguntas sem senso.
+
+Inteligência é algo complexo, Mozart era um gênio da música — mas acredito que era tão estupido quanto gênio para outras coisas. Normalmente uma pessoa se torna “inteligente” em apenas uma coisa. Alguns dizem que a na vida você só tem tempo para ser bom em uma coisa — não sei, Leonardo da Vinci ficou conhecido não só por pintar, mas pelo seu grande repertório de conhecimentos. Que iam desde pintar a botânica, engenharia, matemática e dissecar cadáveres para estudos de anatomia — excelentes inclusive.
+
+Eu, por exemplo, diria que sou “competente” em computadores e suas ramificações — não todas — , poesia, filosofia, física, e literatura. Nada, além disso. Sou tão burro o suficiente para não saber o básico de biologia — mas garanto que te faço parecer burro quando se trata dos assuntos que domino. E isso ocorre com todos nós. Seja lá qual for o contexto. Perguntar sobre QI, não te torna mais inteligente, e nem sequer aumenta seu QI de alguma forma. Mas, afinal, oque é QI?
+
+QI (Quociente de inteligência) é uma unidade de medida da inteligência média de acordo com a geografia. O QI médio varia com a região — por exemplo: o brasileiro tem o QI médio de **87**, enquanto os americanos têm um QI médio de **98**. Isso ocorre pela riqueza dos países. Em países mais ricos, tendem ter um QI médio mais alto em relação a países pobres.
+
+Mas claro, não é apenas o dinheiro dos países que importa e sim sua educação. Hong Kong tem uma economia menor que a dos EUA, mas, em contrapartida, tem uma média de QI maior, acarretando QI médio mais alto do mundo com **106** pontos — Inclusive, os países Asiáticos dominam o pódio desta lista. Isso é fruto da forte cobrança educacional que existe nestes países.
+
+Mas claro, tanto dominam a lista de QI mais altos, quanto também são bastante presentes na média de suicídio global. A forte cobrança educacional e profissional que existe nestes países, levam muitos residentes para o caminho da depressão, e consequentemente, do suicídio.
+
+Pensar nisso só mostra como o mundo e o ser humano são complexos. Nos países que deveriam se orgulhar da competência educacional, acabam se lamentando dos efeitos colaterais da mesma.
+
+Muitas pessoas ficam antenadas em saber sobre seu QI, como se fosse prova de inteligência ou falta dela. QI realmente não significa nada. Você pode ter pessoas com um QI alto que nunca fizeram nada que chamasse atenção intelectualmente, quanto se pode ter pessoas com QI mais baixo que realmente fizeram algo intelectual.
+
+Einstein tinha um QI de **160**, Stephen Hawking partilhava o mesmo QI — mas conseguimos notar a diferença das façanhas de ambos. Einstein mudou o mundo a sua volta e como o percebemos. Hawking contribuiu para a cosmologia e na divulgação cientifica, mas nunca chegou a conquistas de tamanha importância como Einstein. Claro, também podemos levar em consideração a época que ambos viveram — mas isso só mostraria mais ainda como este assunto é complexo e sem precedentes.
+
+Um gênio preguiçoso pode perder para um esforçado mediano. Enquanto um esforçado mediano pode nunca alcançar um gênio preguiçoso. Acredito que isso varia de pessoa para pessoa. De mente para mente. Eu mesmo já vi casos de pessoas esforçadas que não conseguiam competir com preguiçosos que absorviam o conteúdo rapidamente.
+
+Minha conclusão é que as pessoas deveriam parar de fazer perguntas sem sentido e começarem a trabalhar em algo concreto que aumente seu repertorio e consequentemente sua inteligência. Perguntar sobre QI ou a diferença de QI de pessoas não te torna mais sábio, apenas mostra que você não leu o bastante. Muitos se gabam de seu QI, mas, oque você fez de importante para alguém que fosse sinônimo de inteligência?
