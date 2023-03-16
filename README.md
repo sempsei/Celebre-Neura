@@ -1,4 +1,4 @@
-# Blog
+# Célebre Neura
 Blog em Pt-BR sobre tecnologia e afins dentro do GitHub!
 
 ### Conteúdo:
